@@ -1,0 +1,1 @@
+# ginat-jewlery
